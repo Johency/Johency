@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Johency
+- 👋 Hi, I’m @Johency ( i'm from france so my english is not that well)
 - 👀 I’m interested in technonoly
 - 🌱 I’m in 10 grade
 - 💞️ I’m looking to collaborate on nothing
